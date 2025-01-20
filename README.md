@@ -1,4 +1,4 @@
-![Programmer](https://www.facebook.com/photo/?fbid=1041742240706711&set=a.139553404258937)### Hi there 👋, I a'm Omor Iqbal
+(https://www.facebook.com/photo/?fbid=1041742240706711&set=a.139553404258937)### Hi there 👋, I a'm Omor Iqbal
 #### Programmer
 
 
